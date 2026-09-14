@@ -9,3 +9,7 @@
 
 ## Instructions
 
+1. Mash the avocado
+2. Finely chop the coriander and red onion
+3. Add salt and lemon
+4. Enjoy!
